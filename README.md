@@ -1,0 +1,5 @@
+- 👋 Hi, I’m Jordin
+- 👀 I’m interested in CUTE BOYS <3
+- 🌱 I’m currently learning HOW TO PLEASE MEN 
+- 💞️ I’m looking to collaborate on SEX
+- 📫 How to reach me CARRIER PIGEON
