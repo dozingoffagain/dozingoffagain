@@ -1,5 +1,5 @@
-- 👋 Hi, I’m Jordin
+- 👋 Hi, I’m JORDIN332
 - 👀 I’m interested in VIOLATING YOUR CLIENT SIDE ANTI-CHEAT
-- 🌱 I’m currently learning HOW TO PLEASE MEN 
+- 🌱 I’m currently learning EASY ANTI-CHEAT BINARIES
 - 💞️ I’m looking to collaborate on NOTHING
 - 📫 How to reach me CARRIER PIGEON
