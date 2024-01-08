@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Jordin
-- 👀 I’m interested in CUTE BOYS <3
+- 👀 I’m interested in VIOLATING YOUR CLIENT SIDE ANTI-CHEAT
 - 🌱 I’m currently learning HOW TO PLEASE MEN 
-- 💞️ I’m looking to collaborate on SEX
+- 💞️ I’m looking to collaborate on NOTHING
 - 📫 How to reach me CARRIER PIGEON
